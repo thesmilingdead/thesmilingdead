@@ -1,8 +1,7 @@
-<p align="center"> Marc/Boris/Kin names
-<p align="center"> Autistic + Anxiety
+<p align="center"> MARC / BORIS / KIN NAMES
 
-<p align="center"> Please be patient with me! I'm very shy/nervous with people I don't know, sorry.
-<p align="center"> ONLY C+H IF WE KNOW EACHOTHER. Do NOT copy my avatars.
+<p align="center"> PLEASE be patient with me! I'm very shy/nervous with people I don't know. I'm sorry.
+<p align="center"> ONLY C+H if we KNOW EACHOTHER. Do NOT copy my avatars unless I say it's okay.
 
 <p align="center"> DNI:
 <p align="center"> Basic crit, Hazbin Hotel, Helluva Boss, Melanie Martinez, MSI, Genshin Impact
