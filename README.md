@@ -9,7 +9,7 @@
 <p align="center"> ✦
 
 <p align="center"> DNI/IWEC:
-<p align="center"> Basic crit, Proshippers/darkshippers, Hazbin Hotel/Helluva Boss/Vivzie fans, Melanie Martinez, MSI, Genshin Impact
+<p align="center"> Basic crit, Proshippers/Darkshippers, Hazbin Hotel/Helluva Boss/Vivzie fans, Melanie Martinez, MSI, Genshin Impact, Kevin Spencer, Eddsworld
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31ajqe2s5sfc6f6zpnj3s7mkta2m&redirect=true">
