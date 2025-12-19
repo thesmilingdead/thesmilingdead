@@ -2,14 +2,14 @@
 
 <p align="center"> ✦
 
-<p align="center"> PLEASE be patient with me! I'm very shy/nervous with people I don't know. I'm sorry. If I don't reply to you right away please don't keep messaging me.
-<p align="center"> ONLY C+H if we KNOW EACHOTHER. Do NOT copy my avatars unless I say it's okay, give credits if I say you can.
-<p align="center"> I am usually sat by the top of the map, in the Gorillaz area, or at the docks. Normally offtab unless I'm with friends.
+<p align="center"> PLEASE be patient with me! I'm very shy/nervous with people I don't know. I usually don't interact first for that reason, that's my bad. If I don't reply to you/ignore you please don't keep hastling me!
+<p align="center"> ONLY C+H if we KNOW EACHOTHER. Do NOT copy my ponys unless I say it's okay, credits are appreciated if given permission.
+<p align="center"> I am usually sat at the top of the map, in the Gorillaz area, or at the docks. Normally offtab unless I'm with friends.
 
 <p align="center"> ✦
 
 <p align="center"> DNI/IWEC:
-<p align="center"> Basic crit, Proshippers/Darkshippers, Hazbin Hotel/Helluva Boss/Vivzie fans, Melanie Martinez, MSI, Genshin Impact, Kevin Spencer, Eddsworld
+<p align="center"> Basic crit, Proshippers/Darkshippers, Hazbin Hotel/Helluva Boss/Vivzie fans, Melanie Martinez, MSI, Gacha Life communities/fandom
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31ajqe2s5sfc6f6zpnj3s7mkta2m&redirect=true">
