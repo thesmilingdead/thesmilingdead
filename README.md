@@ -7,6 +7,7 @@
 <p align="center"> PLEASE be patient with me! I am very anxious/quiet with people I don't know. I usually don't interact first for that reason, that's my bad. If I don't reply to you/ignore you please don't keep hastling me
 <p align="center"> Please ONLY C+H if we KNOW EACHOTHER. Do NOT copy my ponys unless I say it's okay, credits are appreciated if given permission.
 <p align="center"> I am usually sat at the top of the map, in the Gorillaz area, TADC area or at the docks! Normally offtab/AFK unless I'm with friends.
+<p align="center"> Please be aware that I have fictkins and selfship! Doubles are fine of course, I don't care.
 
 <p align="center"> ✦
 
@@ -16,7 +17,7 @@
 <p align="center"> ✦
 
 <p align="center"> MAIN FANDOMS/PLEASE INT:
-<p align="center"> Gorillaz, Robots (2005) Big Mouth/Human Rescourses, Moral Orel, Great God Grove, Smile For Me
+<p align="center"> Gorillaz, Robots (2005) Big Mouth/Human Rescourses, Moral Orel, Great God Grove, Smile For Me, T. Rex/Marc Bolan
 
 <p align="center"> OTHER INTERESTS:
 <p align="center"> Invincible, FNaF: Security Breach, Fight Club, The Inbetweeners, Gaslight District, TADC, Metalocalypse, Smiling Friends, Avatar, FNF, Demon Slayer, Beastars, Deadman Wonderland, Saiki K
